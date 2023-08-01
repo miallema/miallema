@@ -1,2 +1,2 @@
 
-You can reach me at michael.allemann [at] protonmail.com
+You can reach me at info [at] cyberdeck.ch
